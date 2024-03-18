@@ -5,7 +5,9 @@ In my current role, I conduct inquiries, write specifications, analyze requireme
 
 
 Email: schalk_asc@hotmail.com 
+
 Cellphone: 353 892600031
+
 LinkedIn: www.linkedin.com/in/adolfo-schalk-campos 
 
 <!--
